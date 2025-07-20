@@ -6,6 +6,7 @@ Im going to try to make the best use of this space as I can.
 - 📫 Reach me through my older brother! @kennydukor
 - ❊ I love the winter, and do most of my work in colder climates
 - 🏀 I love to play basketball when Im not coding
+  
 ❆.　　❅　　❆·*　**.　.　.❅❆❅.　　　　　　　　　　❅　　　　　　　
 　•　　　❆　.•*　*　　.　*　　　•··　　.　*　　·*　　　　　　　❅
 　　　　　❆·　.•　　*　　　　　*　　　　　　　·　　•　　··　··•　　
