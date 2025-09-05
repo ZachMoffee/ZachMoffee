@@ -2,8 +2,7 @@
 Im going to try to make the best use of this space as I can.
 - 🔭 Im all over the place when it comes to projects Im working on, I think of something then I start it thats all
 - 💻You can learn more about me on this site that my brother had me make mofeogunsulire.com
-
--🌱 Nothing Im learning right now is fancy enough, I'll update this when I get to colledge!
+- 🌱 Nothing Im learning right now is fancy enough, I'll update this when I get to colledge!
 - 👯 I can learn things quick so if you need a hand for easy to learn or medium to learn tasks that you dont wanna do Im always here... (I think)
 - 📫 Reach me through my older brother! @kennydukor
 - ❊ I love the winter, and do most of my work in colder climates
